@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chellechanelle
-- 👀 I’m interested in cybersecurity and web development
+- 👀 I’m interested in finding the bridge between cybersecurity and web development and poetry, the arts, and social justice
 - 🌱 I’m currently learning information technology
 - 💞️ I’m looking to collaborate on anything lol
 - 📫 How to reach me on here :)
